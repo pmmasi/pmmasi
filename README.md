@@ -6,8 +6,8 @@ I'm currently pursuing a challenging PhD program in Business Analytics and Stati
 
 In the past, I held financial consultant positions at Rabobank, Climate Bonds, University of Nebraska Lincoln and Stone X. I enjoyed these experiences at the fullest and decided to pursue a degree in academia where I can make use of my business saviness along with novel statistical methodologies highly demanded in today's world.
 
-In my free time I volunteer at kids' afterschool programs, helping them with their homework assignments, or teaching them how to code using microbit. I also enjoy travelling, playing soccer, hicking and running.
+In my free time I volunteer at Centro Hispano afterschool program, helping young kids with homework assignments and teaching them how to code using microbit. I also enjoy travelling, playing soccer, hicking and running.
 
-Feel free to reach out to collaborate for either research or applied business problems.
+Feel free to reach out to collaborate for either research or applied business problems and I will be happy to lend a hand.
 
 
